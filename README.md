@@ -4,4 +4,3 @@
 
 NEW
 
-Apple pie 
